@@ -72,7 +72,7 @@
 
 - 📧 neerajbhumihaar@gmail.com  
 - 📱 +91 97188 26488  
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-linkedin-profile/)  
+- 💼 [LinkedIn](www.linkedin.com/in/neechaudhary/)  
 - 💬 [WhatsApp](https://wa.me/919718826488)  
 
 ---
